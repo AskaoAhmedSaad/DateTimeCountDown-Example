@@ -1,3 +1,1 @@
-# DateTimeCountDown-Example
-
-![](http://www.mediafire.com/view/o6759o45nix0i9r/Screenshot_from_2015-05-03_044040.png)
+![](http://www.mediafire.com/convkey/a6c9/v1p1t59rw6q22lcfg.jpg?size_id=8)
